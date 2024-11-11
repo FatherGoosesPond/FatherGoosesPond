@@ -6,7 +6,7 @@ thank you john ward
 
 If you like,,
 
-**Doki Doki Literature Club, Faith The Unholy Trinity, Cookie Run: Kingdom, Our Life: Beginnings & Always, Stardew Valley, Lord of The Rings, or Dungeons & Dragons,** 
+**Doki Doki Literature Club, Faith The Unholy Trinity, Cookie Run: Kingdom, Our Life: Beginnings & Always, Stardew Valley, Harry Potter, Lord of The Rings, or Dungeons & Dragons,** 
 
 you should **totally** talk to me (ples)
 
